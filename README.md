@@ -1,0 +1,1 @@
+# metotlarda_okul
